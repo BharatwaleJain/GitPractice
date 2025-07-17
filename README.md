@@ -4,13 +4,12 @@
 ### Anshul @AnshulNaphade
 ### Sarada A @saradaahalya
 ### Abhyuday Rai @abhyuday404
-### Kishen PC @kishen-pc
+### Kishen PC @KishenPC
 ### Sree Kavinraj @Kavin-123-crea
 ### Ojas @OVJ07
 ### Siddh Jain @SiddhJ26
 ### Aditi Bajpai @aditibajpaii
 ### Mayur R Keni @MayurRajeshKeni
 ### Akshita Singhal @AKSHITASINGHAL658
-### Sam
-### Naincy Jain @NAINCYJAIN1710
-### Yashika Panda @Yashika 
+### Samrat @the-samrat
+### Naincy Jain @NAINCY1710
